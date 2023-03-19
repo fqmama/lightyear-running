@@ -1,3 +1,25 @@
+
+# [💚💚💚💚💚 10年经验老铁测评，最新权威，点击查看攻略，拒绝跑路VPN！](https://cntizi1.com/?gitfqmama-lightyearrunning-desc)
+
+<!DOCTYPE html>
+<html>
+<head>
+ <meta charset="utf-8">
+</head>
+<body>
+<a href="https://cntizi1.com/?gitfqmama-lightyearrunning-pic"><img src="https://cntizi1.com/images/recommend.png" target="_blank"> </a>
+</body>
+</html>
+
+
+---------
+
+--------
+
+
+
+
+
 重要提示：光年VPN已跑路，请不要再订阅光年VPN！
 
 光年是一家小有名气的VPN服务商，它的主要客户群体是大陆网民和海外华人，它可以提供翻墙出国服务，也可以提供翻墙回国服务。博主也是在2021年3月初的时候，先订阅了一个月的套餐体验，整体感觉还不错。然后在4月初的时候，又订阅了光年的长期套餐（24个月+6个月的套餐）。本以为可以很愉快地玩耍两年半的，结果……
@@ -13,13 +35,5 @@
 这都是小伙伴的血泪教训，一旦出名就容易出事。
 
 所以，大家还是选长期稳定的品牌吧，贵但能持久啊~~~
-
-|  梯子推荐榜   | 推荐指数 | 官网地址  | 备用网址1 | 备用网址2 |
-|  ----  | ----  | ---- | ---- | ---- |
-| Nord梯子 | ⭐⭐⭐⭐⭐ | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitfqmama&aff_click_id=lightyearrun) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=github&aff_sub=gitfqmama&aff_sub2=lightyearrun) | - |
-| Express梯子 | ⭐⭐⭐⭐ | [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitfqmama&data1=lightyearrun) | [Express备用地址1](https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitfqmama&data1=lightyearrun) | - |
-| Ivacy梯子 | ⭐⭐⭐⭐ | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=gitfqmama&data2=lightyearrun) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/gitfqmama/lightyearrun) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=gitfqmama&data2=lightyearrun) |
-| 熊猫梯子 | ⭐⭐⭐ | [Panda官方网址](https://www.pankvyh.xyz/r/22216799) | [Panda备用地址1](https://www.pantoto.xyz/r/22216799) | [Panda备用地址2](https://pandavpnpro.com/r/22216799) |
-
 
 ### 详细测评地址： [长期好用的翻墙梯子推荐](https://github.com/fqmama/tizi)
